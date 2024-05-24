@@ -1,0 +1,1 @@
+Again I just play the hits and try to do a combined piece at the end. You can invite intermediate directors to this one also. This is the concert where I introduce [[Red Rhythm]], the show choir, as well. 

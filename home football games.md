@@ -1,0 +1,7 @@
+We are required to perform at all home football games.
+
+I like to arrive 45 minutes before the game, take attendance and do a run through in the grass where the band enters. The first game sometimes we would wear choir t-shirts from last year. Then after that we wore the red choir polos. You may want to order some more of those for the varsity choir asap.
+
+You will have to email RJaso@Pasadenaisd.org a day before to make sure he has microphones ready (idk why, but Linda always made us do that. You'd think they would just know). Walk on and line up as the cheerleaders are being announced (usually 10 minutes before game start). Wait for the football team to run out then lead on to the 50 yard line with the microphone. Wait for the color guard to do their thing, give the pitch and sing. I usually wait around another half our to make sure kids get picked up or are staying at the game. 
+
+I think the arrangement we did was in Ab, but I would usually give them an A instead. If you have a good soprano like Valeria or Amiah, you can maybe have them jump up to the 5th on "free", but I didn't let them do that very often except when I had a really solid S1. The last game of the year we would do the Mario ending (bVI, vVII, I cadence) on "brave"

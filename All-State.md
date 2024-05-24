@@ -1,0 +1,3 @@
+You know how the all-state process works I'm sure. I required everyone in Varsity to learn the district music and tested them on that, but only kids who paid went to the auditions. There aren't many who have what it takes to get to the next rounds, so it will be a lot of 1 on 1 voice lessons. Amiah, Kimberly, Kevin, Valeria, and Alexis will all do well. 
+
+There is a PISD region camp in July that you should be able to get paid to teach. We combine all of our kids at Dobie and teach the district music in sectionals. That will probably be your first time meeting the kids, so I would really recommend you go. 
