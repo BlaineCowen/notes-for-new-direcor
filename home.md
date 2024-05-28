@@ -28,6 +28,8 @@ I kept things pretty basic then teaching–warm-ups, sight-reading, rep–every 
 Speaking of paper, I usually use the copy machine in the orchestra/band room since it is close than the other ones. Mr Horton should be able to get you paper if there isn't any in there.
 ## Year overview
 
+[[Calendar]]
+
 - [[All-State]]
 - [[Fall Concert]] 
 - [[Winter Concert]]
@@ -67,6 +69,8 @@ I think they are moving from Remind to ParentSquare next year. That may be a mor
 I put any files I need the students to see in a shared google drive that I make them save. 
 
 I've tried for a long time to get kids to use SmartMusic, but they hate it so much. It has a lot of good feature but a lot of very dumb bugs that make it not very useful in my opinion. 
+
+I'll send a google doc with all of the passwords as soon as I can get back into my account/
 
 # Uniforms
 

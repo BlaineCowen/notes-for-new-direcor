@@ -2,6 +2,6 @@ Red Rhythm is our auditioned show choir. They used to do 2-3 songs at every conc
 
 I've always kept it as a choir only group, but with numbers being so low, you may want to make it an open audition and try to draw kids from other parts of the school. 
 
-I had an officer do most of the choreography for this group, but it may be too difficult for next years group to handle. If you need help with choreo, you may be able to try to contact Heidi Franco. She was a student here a few year ago, but she choreographed our entire musical with another alumni, Tomas Meza and did a very good job in my opinion. 
+I had an officer do most of the choreography for this group, but it may be too difficult for next year's group to handle. If you need help with choreo, you may be able to try to contact Heidi Franco. She was a student here a few years ago, but she choreographed our entire musical with another alumni, Tomas Meza and did a very good job in my opinion. 
 
-These students wear their sparkly red dresses or vests for performances.
+These students wear their sparkly red dresses or vests for performances. Like I may have mentioned elsewhere, you may need to see if Michael will pay for some new vests.
